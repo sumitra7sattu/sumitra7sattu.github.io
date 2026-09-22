@@ -1,1 +1,0 @@
-# Satendra-Kumar
